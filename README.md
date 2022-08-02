@@ -24,7 +24,7 @@
 
 ![alt-текст](https://th.bing.com/th/id/R.b0ab6cda6d7f8dc170d7f048b4d0cc0a?rik=SGGoNrVr%2bC0qkQ&pid=ImgRaw&r=0)
 
-## [⚡️Script for the Separated Video(Translated) Currently unavailable]()
+## [⚡️DaVinci Twitter Catalogue(Translated) ]()
 
 
 ## Revolutionary Editing Instruments and Technologies Powers Creators Creative Minds.
