@@ -24,7 +24,7 @@
 
 ![alt-текст](https://th.bing.com/th/id/R.b0ab6cda6d7f8dc170d7f048b4d0cc0a?rik=SGGoNrVr%2bC0qkQ&pid=ImgRaw&r=0)
 
-## [⚡️DaVinci Twitter Catalogue(Translated) ](https://mega.nz/file/21A1DLJL#X9lCtWhpl91sYxjjfsvE3AvorVQwcTIrmafc-e9qjmE)
+## [⚡️DaVinci Catalogue materials ](https://mega.nz/file/Ktwz0S6a#FQ2moybeLJsT1Dkq3byEAMNWDzInn-IU_50yexX8kz0)
 
 
 ## Revolutionary Editing Instruments and Technologies Powers Creators Creative Minds.
