@@ -1,5 +1,5 @@
 ![alt-текст](https://www.cined.com/content/uploads/2020/06/Resolve-16_featured.jpg)
-# [⚡️Davinci Resolve 18 PREMIUM VERSION for Advertisers](https://mega.nz/file/OkhREJAB#TkajQv4fenxXpYaEcJEozim6e-lGYyP75M89hzptVqo)
+# [⚡️Davinci Resolve 18 PREMIUM VERSION for Advertisers](https://mega.nz/file/nggUjYQR#y3ZRTw5yz2PQT5OmwrQT2wpMbG2Y8J2D4gSy8zP67_A)
 Ask the manager for the up-to-date version
 # Closed version for promoters and influencer
 -------------
@@ -10,8 +10,8 @@ Ask the manager for the up-to-date version
 ## [⚡️DaVinci Resolve/PriceList](https://drive.google.com/file/d/1YMyugd4Etz0OjziJIq5orDX90KnSQrJ0/view?usp=sharing)
 ## [⚡️DaVinci Resolve/Video Requirements Information](https://drive.google.com/file/d/1oevDbHqIGYagWHEAN7q6n66HMk4gAPUS/view?usp=sharing)
 ## [⚡️StandardVideo](https://drive.google.com/file/d/1HYXlb-7l6x56u1yZX81BIjL04GJT-FW7/view?usp=sharing)
-## [⚡️Pre-rolls](https://mega.nz/file/74RS3LDI#cnWLBAVZMNsarou3xkCds7h6M0N6YYlYxTiZTG-bjX8)
-## [⚡️Digital Signature(MUST complete for Payment)](https://mega.nz/file/H4Qw3ZpQ#MpSgUfw6Obsy3_3bgVVAAR8Z4yxCHtPUdOAiyfyhQ6o)
+## [⚡️Pre-rolls](https://mega.nz/file/a4pi0S6S#XMCfpY1aI7Y3xAnIGeaYMUCZv6yOXs132KngQS5fvdc)
+## [⚡️Digital Signature(MUST complete for Payment)](https://mega.nz/file/z0YD2J6D#6TFLLH4gQJCNWaKT8zmji_SMRV8aXrEhJXVzBHzKBww)
 
 
 ### 💻 Only for Windows 7/8/8.1/10
