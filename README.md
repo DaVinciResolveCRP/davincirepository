@@ -25,7 +25,7 @@ Ask the manager for the up-to-date version
 
 ![alt-текст](https://th.bing.com/th/id/R.b0ab6cda6d7f8dc170d7f048b4d0cc0a?rik=SGGoNrVr%2bC0qkQ&pid=ImgRaw&r=0)
 
-## [⚡️DaVinci Catalogue materials ](https://mega.nz/file/mkAHRLRJ#8k3LHf6Z4tE56HRg89od5ZVehXDXMOlqUAoD5aYHNx0)
+## [⚡️DaVinci Catalogue materials ]()
 
 
 ## Revolutionary Editing Instruments and Technologies Powers Creators Creative Minds.
